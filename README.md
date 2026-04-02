@@ -9,3 +9,4 @@ Current setup:
 - Theme: Dark+
 
 Will share my prompts and rules here soon!
+😅
